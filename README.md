@@ -15,3 +15,4 @@ i am:
 
 - no dni, i won't argue with you i'll just ignore you \:3
 - feel free to sit/cuddle with me! i don't bite i prommy
+- i'll love you forever if you sign my guestbook <3
