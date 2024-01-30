@@ -14,3 +14,4 @@ i am:
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(3).jpg)
 
 - no dni, i won't argue with you i'll just ignore you \:3
+- feel free to sit/cuddle with me! i don't bite i prommy
