@@ -5,7 +5,7 @@ i love kagepro and enstars #goonersquad !!
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(2).jpg)
 
 i am:
-- pro-fic, anti-harassment
+- pro-fic, anti-harassment https://define-proship.carrd.co/
 - pro self-diagnosis
 - pro-para (pro-recovery and anti-contact)
 
