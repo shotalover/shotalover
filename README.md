@@ -1,3 +1,5 @@
+![](https://github.com/shotalover/shotalover/blob/f018349b6ddcffd2d3799907741d43c3253bc60e/kabedon%20eichitori.png)
+
 i love kagepro and enstars #goonersquad !!
 
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(2).jpg)
