@@ -10,6 +10,8 @@ i am:
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(4).jpg)
 
 - i'm usually hanging out with my friends or afk/off-tab!
+- i like spreading joy and whimsy, joyous whimsy if you will
+- and i am full of joyous whimsy!! haters don't effect me ^o^
 
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(3).jpg)
 
