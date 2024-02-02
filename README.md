@@ -1,6 +1,5 @@
 i love kagepro and enstars #goonersquad !!
 
-![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(1).jpg)
 ![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(2).jpg)
 
 i am:
@@ -20,3 +19,5 @@ i am:
 - no dni, i won't argue with you i'll just ignore you \:3
 - feel free to sit/cuddle with me! i don't bite i prommy
 - i'll love you forever if you sign my guestbook <3
+
+![](https://github.com/shotalover/shotalover/blob/99e4707969ec8f88543d508c959d4207dddf2e03/tori%20(1).jpg)
